@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @AshExistsSometimes
 - 🌱 I’m currently learning Game Design and Programming
-- 😄 Pronouns: She/Her/They/Them
+- 😄 Pronouns: She/Her
